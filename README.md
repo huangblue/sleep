@@ -7,7 +7,7 @@
 5 [让你更专注地工作、更专心学习：5 种白噪音工具推荐](http://sspai.com/27971/)<br>
 6 [学习的时候播放所谓「专用」的背景音乐有用吗？ ](http://www.zhihu.com/question/20236766)<br>
 7 [背景音乐对学习的影响研究 ](http://wenku.baidu.com/link?url=K9Lc1iIgI954wdXInGD9kXnbtWNZ25ONwSGRo3VmZ72h40xqlN_juF6gc_KQVLGnWH-Enc5wQdDVxmBPxMg0dUIVU8A40YnmveA4ipAyKlm)<br>
-[]()<br>
+8 [巴洛克音乐对学习的作用](http://blog.sina.com.cn/s/blog_5cd4d9b90100ctyf.html)<br>
 []()<br>
 []()<br>
 []()<br>
