@@ -10,7 +10,7 @@
 8 [巴洛克音乐对学习的作用](http://blog.sina.com.cn/s/blog_5cd4d9b90100ctyf.html)<br>
 9 [巴洛克音乐增强记忆暗示学习法](http://www.jiyifa.com/qianneng/kaifa/78468.html)<br>
 10 [脑电波](http://baike.baidu.com/link?url=6g3hO_UlrGDif5rKvGBAc_6j-n_55AV5lF1Dyw6b9B81OomdnULyxOTmVc6g8rfCmyvhbTNfcohU4cu6PsEu8HlNdDnuoqPuY8YBvzgCvu8fTiGYjzt5EVmCNMoSZxOh)<br>
-[]()<br>
+11 [α脑电波](http://baike.baidu.com/view/2378442.htm)<br>
 []()<br>
 []()<br>
 []()<br>
