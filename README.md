@@ -13,6 +13,27 @@
 11 [α脑电波](http://baike.baidu.com/view/2378442.htm)<br>
 12 [α脑波音乐](http://baike.baidu.com/view/2904648.htm)<br>
 13 [《音乐对情绪的影响》研究性学习 ](http://zhidao.baidu.com/question/1381672251160626900.html?fr=iks&word=%C1%F7%D0%D0%D2%F4%C0%D6%D0%C4%C0%ED%BD%A1%BF%B5&ie=gbk)<br>
+14 [特定时间，做特定的事-常规仪式(rituals)](http://www.wisdomsnack.com/1406.html)<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
+[]()<br>
 []()<br>
 []()<br>
 []()<br>
