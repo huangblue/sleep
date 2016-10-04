@@ -17,7 +17,7 @@
 15 [阅读心理学](http://baike.baidu.com/link?url=0X7VlKCOI3z34i_8UKePWyTHnf58BjHnRM4Sdvr_PKNGdxTLrBfAYrdPjjfQAdLwFAqQH0nK1Yf_ixXiBEqLDsi6m4s2Mi_T-5IjorsOttlXHGbS5W3XTw_hpE02YzQLthqYhv_TLA1CHPS4RSysHK)<br>
 16 [班得瑞](http://baike.baidu.com/link?url=7YLSgvZkszGehEoFOIQ-hP-iGI-HVc4mxyI4OaU9IVqckf9E-dBAh74MsoOrOLwGQtmlfxqe7icd-iNJmPPa_MIFWyd-QdZ6E3seYWgMI-5HQnqw9tEun6e1fDkabNqX)<br>
 17 [佛教咒语](http://baike.baidu.com/link?url=XBlX3jg_NrTBDY4z0rMgRQtKGvEBOBIr82uq68qZPNKf_9ZpuMDi9AR6onIMJ_KPuYOUlYKkxvNqnBtfyY2LC_)<br>
-[]()<br>
+18 [怎样进入人的潜意识](http://zhidao.baidu.com/link?url=INLSFglkjqWx2gA204LrRMLGUkXHQcZrrvcObzKR3sE0Vj-dcsD6cSM_77ev3rgT23O6xR4Lqwwwli15FzeNpa)<br>
 []()<br>
 []()<br>
 []()<br>
