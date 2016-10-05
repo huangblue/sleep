@@ -19,7 +19,7 @@
 17 [佛教咒语](http://baike.baidu.com/link?url=XBlX3jg_NrTBDY4z0rMgRQtKGvEBOBIr82uq68qZPNKf_9ZpuMDi9AR6onIMJ_KPuYOUlYKkxvNqnBtfyY2LC_)<br>
 18 [怎样进入人的潜意识](http://zhidao.baidu.com/link?url=INLSFglkjqWx2gA204LrRMLGUkXHQcZrrvcObzKR3sE0Vj-dcsD6cSM_77ev3rgT23O6xR4Lqwwwli15FzeNpa)<br>
 19 [如何开发潜意识](http://jingyan.baidu.com/article/08b6a591ea9ad614a8092295.html)<br>
-[]()<br>
+20 [自我催眠其实是一件很容易的事情](http://www.yaolanqu.org/zwcm/793.html)<br>
 []()<br>
 []()<br>
 []()<br>
