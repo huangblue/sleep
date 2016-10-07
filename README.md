@@ -20,7 +20,7 @@
 18 [怎样进入人的潜意识](http://zhidao.baidu.com/link?url=INLSFglkjqWx2gA204LrRMLGUkXHQcZrrvcObzKR3sE0Vj-dcsD6cSM_77ev3rgT23O6xR4Lqwwwli15FzeNpa)<br>
 19 [如何开发潜意识](http://jingyan.baidu.com/article/08b6a591ea9ad614a8092295.html)<br>
 20 [自我催眠其实是一件很容易的事情](http://www.yaolanqu.org/zwcm/793.html)<br>
-[]()<br>
+21 [8种快速恢复精力的方法](http://www.bskk.com/forum.php?mod=viewthread&tid=108696&page=1&authorid=30697)<br>
 []()<br>
 []()<br>
 []()<br>
