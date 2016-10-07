@@ -24,7 +24,7 @@
 22 [快速休息恢复精力的五种方法](http://weibo.com/p/1001593782279024531405?from=page_100505_profile&wvr=6&mod=wenzhangmod)<br>
 23 [时间管理：4大方法帮你快速恢复精力](时间管理：4大方法帮你快速恢复精力)<br>
 24 [恢复精力的方法有哪些 怎样保持精力充沛](http://www.51etong.com/s/jkbj/56794.shtml)<br>
-[]()<br>
+25 [帮你快速恢复精神的8个方法](http://www.ting30.com/zy/2015/5589.html)<br>
 []()<br>
 []()<br>
 []()<br>
