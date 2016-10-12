@@ -1,4 +1,4 @@
-一、网上信息
+http://www.cuhk.edu.hk/ipro/981124c.htm一、网上信息
 =====
 1 [如何高效地睡眠？](http://www.zhihu.com/question/19551007)<br>
 2 [睡眠十律](http://baike.baidu.com/link?url=uKJgaj8mu6u1CCFjhfPa2MZVId3wjgsdOY44HlA85-N128qYKs7FBhHUskUTFgLROO5A18FHwneR3T66Wd8Uu_)<br>
@@ -25,7 +25,7 @@
 23 [时间管理：4大方法帮你快速恢复精力](时间管理：4大方法帮你快速恢复精力)<br>
 24 [恢复精力的方法有哪些 怎样保持精力充沛](http://www.51etong.com/s/jkbj/56794.shtml)<br>
 25 [帮你快速恢复精神的8个方法](http://www.ting30.com/zy/2015/5589.html)<br>
-[]()<br>
+26 [學習音樂有助增強對語言的記憶力](http://www.cuhk.edu.hk/ipro/981124c.htm)<br>
 []()<br>
 []()<br>
 []()<br>
